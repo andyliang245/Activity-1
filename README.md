@@ -5,14 +5,14 @@
 ----
 
 ## ***University of Washington*** Mascot
-[Huskies](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F447052700481719240%2F&psig=AOvVaw3IotNHMKjpt_SK5BZ4rbHS&ust=1613332623799000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMj2rcPS5-4CFQAAAAAdAAAAABAD)
+![Huskies](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F447052700481719240%2F&psig=AOvVaw3IotNHMKjpt_SK5BZ4rbHS&ust=1613332623799000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMj2rcPS5-4CFQAAAAAdAAAAABAD)
 
 >"GO HUSKIES"
 
 ----
 
 ## SS&C Technologies
-[SS&C](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.prnewswire.com%2Fnews-releases%2Fssc-appoints-laton-spahr-as-president-of-ssc-alps-advisors-300954552.html&psig=AOvVaw3EDCgSJz65H4QG1twPB3Q9&ust=1613332656548000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKCartPS5-4CFQAAAAAdAAAAABAJ)
+![SS&C](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.prnewswire.com%2Fnews-releases%2Fssc-appoints-laton-spahr-as-president-of-ssc-alps-advisors-300954552.html&psig=AOvVaw3EDCgSJz65H4QG1twPB3Q9&ust=1613332656548000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKCartPS5-4CFQAAAAAdAAAAABAJ)
 
 ----
 
