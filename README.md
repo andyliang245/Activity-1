@@ -18,5 +18,5 @@
 
 # Why FinTech/Career Goal
 
-### I would like to expand my knowledge into the FinTech world and apply technological advancements in financial services world. I am hoping upon completion of this class, I will be able to utilize the knowledge I gain in the class and my experience to have a career in the investment finance world..
+### I would like to expand my knowledge into the FinTech world and apply technological advancements in financial services world. I am hoping upon completion of this class, I will be able to utilize the knowledge I gain in the class and my experience to have a career in the investment finance world.
 
