@@ -5,14 +5,14 @@
 ----
 
 ## ***University of Washington*** Mascot
-![Huskies](https://i.pinimg.com/originals/ee/45/92/ee4592e5f761be6da2a29e3490d98a00.jpg)
+### ![Huskies](https://i.pinimg.com/originals/ee/45/92/ee4592e5f761be6da2a29e3490d98a00.jpg)
 
->"GO HUSKIES"
+#### >"GO HUSKIES"
 
 ----
 
 ## SS&C Technologies
-![SS&C](https://mma.prnewswire.com/media/692536/SSC_Logo.jpg)
+### ![SS&C](https://mma.prnewswire.com/media/692536/SSC_Logo.jpg)
 
 ----
 
