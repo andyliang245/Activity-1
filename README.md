@@ -1,1 +1,1 @@
-# Activity-1
+## My name is Andy. I graduated from the University of Washington, Bothell campus with a degree in Business, concentrating in Financing. I am currently a Senior Alternative Fund Accountant for SS&C ALPS, a subsidiary to SS&C Technologies. With finance background through my education and career background, I would like to expand my knowledge into the FinTech world and apply technological advancement in financial services world.
